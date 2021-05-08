@@ -1,0 +1,1 @@
+boil water with 1 spoon of tea powder,cardomom,ginger,filter and add sugar
